@@ -1,3 +1,3 @@
 ## olá sla 
 
-você é idiota
+você é idiota :P
